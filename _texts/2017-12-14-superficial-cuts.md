@@ -1,6 +1,6 @@
 ---
 layout: poem
-title: superficial cuts
+title: Superficial cuts
 author: Pankesh Bamotra
 ---
 

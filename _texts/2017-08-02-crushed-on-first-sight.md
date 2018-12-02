@@ -1,0 +1,51 @@
+---
+layout: poem
+title: Crushed on first sight
+author: Pankesh Bamotra
+---
+
+- She was a flawless beauty, dusky yet warm,
+- I mean so graceful, that I couldn't keep calm,
+- I had to talk to her, but couldn't ask her out,
+- Oh the endless thoughts, and my brain would shout,
+- "She's the one, go get her", said the voice,
+- I was so lost in her coz I had no other choice,
+- One day she called my name, my heart elated,
+- 'Twas a normal day and she wished me for birthday belated,
+- I was feeling born again, that omg I'm the selected,
+- I had a dream and I could see it perfected,
+- Days and nights passed, we became friends,
+- I couldn't say the truth that I wanted to walk to the ends,
+- She meant the world to me, the love of my life, God bless,
+- I think she was falling for me, luck was on my side I guess.
+- She proposed me and I was jumping on my bed,
+- We were serious and tied the dreams on thread,
+- I loved the way she curled her lips to say to say my name,
+- She was my love, my heart, my life, the push, the flame,
+- I loved the way she looked in the pink dress,
+- Shh I never told her I loved her in every dress,
+- The way she tied her hair, the veil on her face,
+- More the time passed the more I loved her grace,
+- We fought, we cried, we consoled, we smiled together,
+- At times we fell apart but just to be closer than ever,
+- She flew away to another place, I felt alone,
+- Her warmth kept me smiling and sadness begone,
+- Busier were the days to follow, I couldn't give my best,
+- Was that the reason she began losing interest?
+- How could that be when she knows my heart is hers,
+- I was losing the rhyme of life,
+- She was upset, why couldn't I get things right,
+- She was upset, why couldn't I make things bright,
+- She was upset, why couldn't I make her heart light,
+- Upset was I, wrong, broken, she was getting out of sight,
+- She had her reasons locked in her heart I felt betrayed,
+- Couldn't speak to her for a long, was totally dismayed,
+- But how could I live without talking to her,
+- I mustered all my courage and binged her,
+- She was angry the way I went away quietly,
+- I told her that I loved her more than before and mightily,
+- She was no more the person I once loved,
+- She is lost, upset, fallen but my beloved,
+- I want to be with her again, she fears that thought,
+- This time I'll keep aside love and make sure,
+- that she is not upset, not lost, not fallen, and brighter than the girl I first met.
